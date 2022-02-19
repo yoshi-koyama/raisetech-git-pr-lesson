@@ -1,2 +1,2 @@
 renato-sugimoto
-working KURUME
+working in KURUME
